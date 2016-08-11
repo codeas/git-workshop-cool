@@ -1,2 +1,1 @@
-Luštěla: https://www.youtube.com/watch?v=AHm5fndM8DQ
-Olivie: https://www.youtube.com/watch?v=DfaXxx1aOZE
+Mašinka https://www.youtube.com/watch?v=G8htac0tXpI
